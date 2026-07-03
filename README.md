@@ -1,1 +1,1 @@
-# The-Equilibrium-Gambit
+# The Equilibrium Gambit
